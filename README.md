@@ -1,0 +1,1 @@
+I am writing this before I start my assignment. I will add to this as I go, or as I reflect upon my completed project.
